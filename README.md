@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Auvar
 -i like minecraft and fnf
-
+-i have a youtube subscribe pls
 
 
 <!---
